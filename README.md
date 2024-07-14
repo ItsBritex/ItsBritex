@@ -3,7 +3,7 @@
 ## -----SOBRE MI-----
 ･☆･
 👨‍💻 Desarrollador de software de aplicaciones web y Engines enfocado en FNF
-･☆･
+･☆･ \n
 🎨 Creador de contenido
 ･☆･
 🚀 Trabajando Actualmente en FNFXpertEngine
