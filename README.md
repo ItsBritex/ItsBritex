@@ -1,25 +1,25 @@
-# -----BIENVENIDO-----
+# -----WELCOME-----
 ![WELCOME](https://github.com/user-attachments/assets/11d384c5-94cc-4350-9732-53d421a6a62d)
 
-## -----SOBRE MI-----
+## -----ABOUT ME-----
 
 ･☆･  
-👨‍💻 Desarrollador de software de aplicaciones web y Engines enfocado en FNF  
+👨‍💻 Developer of web application software and Engines focused on FNF  
 ･☆･  
 
-🎨 Creador de contenido  
+🎨 Content creator  
 ･☆･  
 
-🚀 Trabajando Actualmente en FNFXpertEngine  
+🚀 Currently working on FNFXpertEngine  
 ･☆･  
 
-🔗 Redes sociales: [YouTube](https://www.youtube.com/@ImBritex)  
+🔗 Social media: [YouTube](https://www.youtube.com/@ImBritex)  
 ･☆･  
 
-💀 Sigo pendiente a la muerte como si fuese por suerte que vivo. Que sea solo tu mente la que reine, hay que saber aprenderlo sin que te lo enseñen.  
+💀 I remain pending to death as if I lived by luck. Let it be only your mind that reigns, you have to learn it without being taught.  
 ･☆･  
 
-🇲🇽 Mexicano  
+🇲🇽 Mexican  
 ･☆･  
 
 🌈 Heterosexual
