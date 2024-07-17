@@ -4,13 +4,11 @@
 ## -----ABOUT ME-----
 
   
-👨‍💻 Developer of web application software and Engines focused on FNF  
+👨‍💻 Developer of web application junior 
   
 
 🎨 Content creator  
   
-
-🚀 Currently working on FNFXpertEngine  
   
 
 🔗 Social media: [YouTube](https://www.youtube.com/@ImBritex)  
